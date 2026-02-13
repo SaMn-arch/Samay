@@ -1,0 +1,2 @@
+# Samay
+To send someone
